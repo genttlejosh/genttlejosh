@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @genttlejosh
 - 👀 I’m a Website Developer
 - 🌱 I’m currently working as a software developer 
-- 📫 How to reach me is through my phone @ +2348065972150 & my mail kigbu.joshua@yahoo.com
+- 📫 How to reach me is through my phone @ +2348065972150 & my mail genttlejosh@gmail.com
